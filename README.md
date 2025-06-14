@@ -1,1 +1,1 @@
-# hitechcity
+# hitechcity-of-bantu
